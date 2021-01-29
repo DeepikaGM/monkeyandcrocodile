@@ -1,1 +1,1 @@
-Once upon a time, there was a monkey who was residing in a jungle.
+Once upon a time, there was a monkey who was residing in a jungle.The crocodile was his best friend.
